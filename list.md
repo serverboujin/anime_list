@@ -74,7 +74,7 @@ Fate/stay night [Unlimited Blade Works]（2期）
 グリザイアの迷宮  
 グリザイアの楽園  
 這いよれ！ニャル子さんF  
-ラブライブ！School Idol Moovie  
+ラブライブ！School Idol Movie  
 Charlotte  
 To LOVEる ダークネス 2nd  
 のんのんびより りぴーと  
