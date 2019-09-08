@@ -8,7 +8,7 @@ CLANNAD
 劇場版空の境界 伽藍の洞  
 ストライクウィッチーズ  
 劇場版空の境界 矛盾螺旋  
-CLANNAD ~AFTER STORY~
+CLANNAD ～AFTER STORY～
 とある魔術の禁書目録  
 劇場版空の境界 忘却録音  
 
