@@ -160,7 +160,7 @@ STEINS;GATE
 Fate/Zero 1stシーズン  
 
 ## 2010  
-Angel Beats!（視聴中）  
+Angel Beats!  
 ストライクウィッチーズ２  
 俺の妹がこんなに可愛いわけがない  
 とある魔術の禁書目録Ⅱ  
